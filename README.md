@@ -29,6 +29,7 @@
 6. [Eshikhon Wordpress Development course](https://drive.google.com/drive/folders/1---lzPMgcjUm-LCisvMjSdWQ4UfDkTZ4?fbclid=IwAR16JJbPLagu2hctH8A_iZQhyiCRQZU__a3Oiugvi88_Sed0ODBaNmcosjw)
 7. [Esikhon ASP .Net Full course project](https://drive.google.com/drive/folders/1q1m9ETN2zag0DjUCu8X2AYlHCqBuuFBf?fbclid=IwAR1e6A1n8qQPyeySW01Z01_gnqoqsoqHXX4C62G6HXLTJnxyy12A1gU3RE0)
 8. [It bari web design and wordpress Course ](https://l.facebook.com/l.php?u=https%3A%2F%2Fdrive.google.com%2Fdrive%2Ffolders%2F1BzCF4ysAQk2SsitNrdKWVDyZMXC9PXog%3Ffbclid%3DIwAR3_U5xOLFeEJVjjf8MX9oFBHyFJsOMbEraXwEb7e5HNO-SmiPYS7DUaEkA&h=AT2Aw63nMXxR_ZUpWX4shlK1kEQ-fxCw_nCZJse87JZ7Es8Sio93Jw53czjfkZwu1JkLAzQhh_os24XDYr5krPN5q-wyWKLfJZjt-UFx1_OenvX8a4TwnHIU2dBjmHdSoJEF&__tn__=-UK-R&c%5B0%5D=AT1CAaBk7_gJWva05tx3Trnxb4gb760Lq73KxEjRnfswtoSv5aQQOpK7ys0EDBDsJ0b0pBzxmfNZtoI5h6yG0-T_XRfTLdjeBt1D8rh_7bBWfFPGpug_srWiIFWP8jfZxsEkiNqEcBP1YwPQRk-Cu9DsUnWi1w62VUGfCyxJ3HRWUPNaCBm9eYrvl7nPbVwUAyA4AZOKpmuGnFUs6Dnby6g)
+9. [All premium Wordpress theme](https://mega.nz/folder/7XAFzI6D#JIqE5EwowV2pv4wvi5AfBg)
 
 
 ### Digital Marketing Paid Course 
@@ -45,6 +46,7 @@
  ### Social Media course 
  
  1.[Linkdin](https://mega.nz/folder/33hDDIKT?fbclid=IwAR2HLFyikdPm_Y8vHGKBl9wnzRVIw8iAvUI9mqIvgC-VYJygO_v8DTUh0FI#IYBwZr8uKXV1nGq88l-bag)
+ 2. [Facebook hacking ](https://mega.nz/folder/7XAFzI6D#JIqE5EwowV2pv4wvi5AfBg) 
 
 
 ### Autocad Paid Course 
