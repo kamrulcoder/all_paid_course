@@ -1,5 +1,8 @@
 # All Course Project 
 
+###  Premium Font 
+1. [font](https://mega.nz/file/ZeByhYZC#t12531KXrtYmn7QLd-mEmL32OvQt_yVjl-yW9MwTDVk)
+
 ### Fiver or Freelancing course 
 
 1. [Mushior rahnman fiverr course ](https://drive.google.com/drive/folders/1TlRsZt2MfqizA0j_-sBbnFXv8Wr20afW?fbclid=IwAR3EMizvo0fQSjd9nPBrpfrDk9PF40FBmrion_fllQ3-eEJlBKSZesCuV).
@@ -14,6 +17,8 @@
 
 1. [Motion Graphics 2d and 3d ](https://mega.nz/folder/33hDDIKT?fbclid=IwAR2HLFyikdPm_Y8vHGKBl9wnzRVIw8iAvUI9mqIvgC-VYJygO_v8DTUh0FI#IYBwZr8uKXV1nGq88l-bag)
 2. [Graphic Design photoshop ](https://drive.google.com/drive/folders/1vCqu3ze8LR41NM6WC4FwSK-Jhz-eUlXG?usp=sharing&fbclid=IwAR3qHcDD8obgG3AqwnJFPN8SLqCeMl8ldI5c31gp65bXtrie7-D-Tz1Qm4c)
+3. [Graphic School  All course ](https://drive.google.com/drive/folders/1KR0F7txvWG60Mipc5pV2C6x26cGPnad0?fbclid=IwAR09oPhxh1tQegqyL2bkipaeLf-tXmf8Kuu-fQvmodMOeKm9AOa-uYIIhVo)
+4. 
 
 
 ### Development Project 
@@ -30,6 +35,8 @@
 2. [Servey Free coure ](https://drive.google.com/drive/mobile/folders/1tSPDtSmpQJmQLN91LLu9wZjeDyNqBWRc?fbclid=IwAR0o_6GUBgCCH08W8yzFDCBy1TkZ29WB5ioRALh5YRTBEP9xpxT_kCFDmko)
 3. [khaled arhan maketing course ](https://drive.google.com/drive/u/0/folders/1IyBsbsxjlgW4xmQjsSQf5UsD9SQDFdqB?fbclid=IwAR0zntMT3SBA8u5FLjlu7KYsS_V87ENJnJwzjwt-SLtFgy9cqR_eqs9VBG0)
 4. [khaled arhan maketing course 1 ](https://drive.google.com/drive/u/0/folders/1d_DpRvX_C79hZEkD_NdxjKNZEHAADOkJ?fbclid=IwAR3ioaEuerKVBli-45xVjt-Nev-yZxQ88kiU-E4ld6HGATl4Nf_6ZrRXP_Y)
+5. [Affiliate Marketing ](https://l.facebook.com/l.php?u=https%3A%2F%2Fdrive.google.com%2Fdrive%2Ffolders%2F1rgrSJhAFm3X_kli1wGm4b7V20slfKo4C%3Fusp%3Dsharing%26fbclid%3DIwAR0htB7byXjP3psGTesG_LLNB5GlyTTIC2OjeP8NsHOcsFDFTd-xVu0f5sc&h=AT1_UtwDPswUd72bA_0OC2IUVUOA6TUvaJ--XCF7l0wFEDrVBQJGMUm3fqyTsoAeIc4H6-SBL8NorLfegEgwvz-dGMdCjpb9OJeTU01seslU4aYUlP0OSvp_8jzWhYkp5zDb&__tn__=-UK-R&c%5B0%5D=AT1CAaBk7_gJWva05tx3Trnxb4gb760Lq73KxEjRnfswtoSv5aQQOpK7ys0EDBDsJ0b0pBzxmfNZtoI5h6yG0-T_XRfTLdjeBt1D8rh_7bBWfFPGpug_srWiIFWP8jfZxsEkiNqEcBP1YwPQRk-Cu9DsUnWi1w62VUGfCyxJ3HRWUPNaCBm9eYrvl7nPbVwUAyA4AZOKpmuGnFUs6Dnby6g)
+6. 
  
  
  
@@ -37,3 +44,36 @@
  ### Social Media course 
  
  1.[Linkdin](https://mega.nz/folder/33hDDIKT?fbclid=IwAR2HLFyikdPm_Y8vHGKBl9wnzRVIw8iAvUI9mqIvgC-VYJygO_v8DTUh0FI#IYBwZr8uKXV1nGq88l-bag)
+
+
+### Autocad Paid Course 
+1. [AutoCad Course ](https://l.facebook.com/l.php?u=https%3A%2F%2Fdrive.google.com%2Fdrive%2Ffolders%2F1rgrSJhAFm3X_kli1wGm4b7V20slfKo4C%3Fusp%3Dsharing%26fbclid%3DIwAR0htB7byXjP3psGTesG_LLNB5GlyTTIC2OjeP8NsHOcsFDFTd-xVu0f5sc&h=AT1_UtwDPswUd72bA_0OC2IUVUOA6TUvaJ--XCF7l0wFEDrVBQJGMUm3fqyTsoAeIc4H6-SBL8NorLfegEgwvz-dGMdCjpb9OJeTU01seslU4aYUlP0OSvp_8jzWhYkp5zDb&__tn__=-UK-R&c%5B0%5D=AT1CAaBk7_gJWva05tx3Trnxb4gb760Lq73KxEjRnfswtoSv5aQQOpK7ys0EDBDsJ0b0pBzxmfNZtoI5h6yG0-T_XRfTLdjeBt1D8rh_7bBWfFPGpug_srWiIFWP8jfZxsEkiNqEcBP1YwPQRk-Cu9DsUnWi1w62VUGfCyxJ3HRWUPNaCBm9eYrvl7nPbVwUAyA4AZOKpmuGnFUs6Dnby6g)
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
