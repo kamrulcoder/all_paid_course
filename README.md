@@ -9,7 +9,8 @@
 ### Fiver or Freelancing course 
 
 1. [Mushior rahnman fiverr course ](https://drive.google.com/drive/folders/1TlRsZt2MfqizA0j_-sBbnFXv8Wr20afW?fbclid=IwAR3EMizvo0fQSjd9nPBrpfrDk9PF40FBmrion_fllQ3-eEJlBKSZesCuV).
-2. [Fiver gig details ](https://drive.google.com/drive/folders/1ijGVe8d_eQflcP4AX5nwWGaGoMtjMIY7?fbclid=IwAR2HLFyikdPm_Y8vHGKBl9wnzRVIw8iAvUI9mqIvgC-VYJygO_v8DTUh0FI)
+2. [Fiver gig details ](https://drive.google.com/drive/folders/1ijGVe8d_eQflcP4AX5nwWGaGoMtjMIY7?fbclid=IwAR2HLFyikdPm_Y8vHGKBl9wnzRVIw8iAvUI9mqIvgC-VYJygO_v8DTUh0FI).
+2. [Fiverr course in Graphics School ](https://drive.google.com/drive/folders/14GiBhWBm-5oyDHpoywHKBfZ04exW1vHP?usp=sharing)
 
 ### SEO Paid Course 
 1. [Eshikhon Seo Course](https://drive.google.com/drive/folders/1PShLOqlnW0Hw6guiU8c9XXMbbdFh0Sn1?fbclid=IwAR2_C3QyLd6HjXloe1Qdu_OkwhDtMx7x7Ds4c70yx9I6scNnfOYY8t5eGyQ)
